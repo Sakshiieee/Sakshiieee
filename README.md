@@ -24,8 +24,7 @@
 → ✍️ Writing ideas that won’t stay quiet
 
 Outside of coding:
-→ 📖 Poetry  •  💬 Conversations  •  🎵 Music
-→ 🧠 Marketing  •  ✨ Creative chaos  •  🌙 Late-night thinking</pre>
+📖 Poetry  •  💬 Conversations  •  🎵 Music • 🧠 Marketing  •  ✨ Creative chaos  •  🌙 Late-night thinking</pre>
 
 ---
 
